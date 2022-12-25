@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @navruza125678
+- 👋 Hi, I’m @navruza
 - 👀 I’m interested in coding, reading and creating.
 - 🌱 I’m currently learning Programming languages.
 - 📫 How to reach me: Facebook:https://www.facebook.com/profile.php?id=100008443290671&mibextid=LQQJ4d
